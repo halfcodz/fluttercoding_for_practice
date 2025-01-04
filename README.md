@@ -1,1 +1,1 @@
-![myFirst_Screen](https://github.com/user-attachments/assets/f7a64574-f705-44b2-b929-76e3d21c010b)
+![myFirst_Screen](https://github.com/user-attachments/assets/062427d5-8acb-4c3f-a66a-db94be60f7e3)
